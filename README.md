@@ -1,1 +1,2 @@
 # prajapathi
+today is thrusday
